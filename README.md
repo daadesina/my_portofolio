@@ -25,7 +25,7 @@ Check out the projects I’ve worked on, including descriptions, technologies us
 ## Contact
 
 Get in touch with me for potential collaborations, job opportunities, or any inquiries.
-PHONE: +2348103230934
-* EMAIL: daadesina1@gmail.com (daadesina1@gmail.com)
-* LINKEDIN: https://www.linkedin.com/in/abdullah-adesina-dhikrullah (https://www.linkedin.com/in/abdullah-adesina-dhikrullah?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B5VYIKA6yQr2ToWe3%2BEkC%2Bg%3D%3D)
+* PHONE: +2348103230934
+* EMAIL: daadesina1@gmail.com
+* LINKEDIN: https://www.linkedin.com/in/abdullah-adesina-dhikrullah
 
